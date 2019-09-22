@@ -2,7 +2,7 @@
 
 ## Result
 
-![Imgur](https://imgur.com/nqCZQe2)
+![Imgur](https://imgur.com/nqCZQe2.png)
 
 
 ## Introduction
